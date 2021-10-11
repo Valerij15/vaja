@@ -1,2 +1,2 @@
 # vaja
-ddddžxx
+ddddžx
